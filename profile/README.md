@@ -9,7 +9,8 @@ We are devoted to making the transcendental wisdom from the Indian scriptures ac
 We believe that by making the ancient teachings of Sanatana Dharma relevant to modern life, we can inspire a new generation of Dharma followers and create a more compassionate and harmonious world.
 
 
-Join Us!
+## Join Us!
+
 If you are passionate about making a difference and want to help us in our mission, then we would love to have you on board!
 Here are some ways in which you can contribute:
 - Are you a designer? Help us create beautiful and user-friendly interfaces for our websites and apps.
