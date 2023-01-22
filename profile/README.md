@@ -1,6 +1,6 @@
 # 🕉️ Ved Vyas Foundation
 
-🚀 Are you ready to make a difference and bring the ancient wisdom of Sanatana Dharma to a new generation? 
+Are you ready to make a difference and bring the ancient wisdom of Sanatana Dharma to a new generation? 
 
 🌟 The Ved Vyas Foundation is on a mission to make this happen, and we need your help! 🚀
 
@@ -18,4 +18,6 @@ Here are just a few ways you can get involved:
 
 So what are you waiting for? 
 
-🚀 Join us today and let's make a difference together! 🙌
+🚀 Let's make a difference together! 🙌
+
+[Join our WhatsApp group to connect with like-minded individuals and get involved.](https://chat.whatsapp.com/DJELAm60HsKKkoVU1mH3fu)
