@@ -22,4 +22,4 @@ So what are you waiting for?
 
  Please feel free to add comments and suggestions in the *[Organization Roadmap](https://granite-diver-e8a.notion.site/Shri-Ved-Vyas-Foundation-Roadmap-a87a378817e8455281a9baa43e03f601)* .
 
-[Join our WhatsApp group to connect with like-minded individuals and get involved.](https://chat.whatsapp.com/DJELAm60HsKKkoVU1mH3fu)
+[Join our Slack to connect with like-minded individuals and get involved.](https://join.slack.com/t/vedvyas/shared_invite/zt-1o5himgxu-1e905aI7FM_8QsxbtiyVNA)
